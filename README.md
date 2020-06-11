@@ -1,1 +1,0 @@
-# lab2_GorokhovArtem_PI-19-1
